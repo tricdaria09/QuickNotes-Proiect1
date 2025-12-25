@@ -1,0 +1,1 @@
+# QuickNotes-Proiect1
